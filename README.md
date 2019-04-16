@@ -1,0 +1,2 @@
+# Assetto-Corsa-Eventos-Forocoches
+AQUI OBTENDRAS LOS MODS NECESARIOS PARA LOS EVENTOS
